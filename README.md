@@ -2,7 +2,7 @@
 **This repo is not final, I'm making updates but wanted to push this out there for those who needed it** <br/>
 This is the continuation from the Twitter thread I posted on how to pivot into Product Management by following your own study plan/bootcamp. I created a plan for you to follow and it could take anywhere from as little as 90 days to make the change! So here's the Tweet!
 
-https://twitter.com/teneikaask_you/status/1549038811312963584
+https://twitter.com/teneikaask_you/status/1549038775904645122
 
 Here's a few FREE courses and resources that you can use to become a Product Manager. This study plan is focused on building and retaining skills and creating a portfolio to land a job🧵
 
